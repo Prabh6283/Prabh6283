@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm a pursuing my Bachelors in Electronics and Communication Engineering,<br>Currently doing internship at CSIR-CSIO , Chandigarh, India.<br>
+I'm a pursuing my Bachelors in Electronics and Communication Engineering,<br>Currently doing 1 YEAR internship at CSIR-CSIO , Chandigarh, India.<br>
 
 
 ## 🌐 Socials:
